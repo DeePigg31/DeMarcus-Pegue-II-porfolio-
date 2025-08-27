@@ -1,0 +1,1 @@
+This portfolio is a general presentation of the range of IT & cybersecurity projects that I currently possess. Stayed tuned as I continually add projects throughout my journey in my IT career. 
